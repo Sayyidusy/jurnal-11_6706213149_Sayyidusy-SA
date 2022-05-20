@@ -1,0 +1,1 @@
+# jurnal-11_6706213149_Sayyidusy-SA
